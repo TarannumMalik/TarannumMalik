@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **html, css**
 
-- 📫 How to reach me **tarannum.malik@somaiya.edu**
+- 📫 How to reach me **maliktarannum883@gmail.com**
 
 - ⚡ Fun fact **I think Im funny.**
 
